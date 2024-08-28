@@ -10,5 +10,5 @@ usually at 18+ docks, usually on-tab <br>
 c+h friendly, item & friend request friendly <br>
 i hide assholes, weirdos and ex-friends <br>
 </p>
-https://mykyie.carrd.co/ ← more info
+https://mykyie.carrd.co/ ← more info<br>
 https://toyhou.se/28834681.myk ← fursona info
